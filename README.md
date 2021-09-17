@@ -1,4 +1,4 @@
-# Actualmente estudiando Grado superior de Desarrollo de Aplicaciones Web
+# Actualmente estudiando 2º Grado superior de Desarrollo de Aplicaciones Web
 
 
 ## Formación:
