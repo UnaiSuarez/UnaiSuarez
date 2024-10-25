@@ -1,4 +1,4 @@
-# Actualmente estudiando curso de especializacion en biberseguridad
+# Actualmente estudiando curso de especialización en ciberseguridad
 
 
 ## Formación:
