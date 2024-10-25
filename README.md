@@ -1,4 +1,4 @@
-# Actualmente estudiando Grado superior de Desarrollo de Aplicaciones Multiplataforma 2º.
+# Actualmente estudiando curso de especializacion en biberseguridad
 
 
 ## Formación:
